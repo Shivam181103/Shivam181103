@@ -9,7 +9,7 @@
 
 - 📫 You can Connect me from  **shivamchaudharyclassic@gmail.com**
 
-- ⚡ Fun fact ** I am a learner now. **
+- ⚡ Fun fact **I am a learner now.**
  
 <h3 align="left">Connect with me:</h3>
 <p align="left">
